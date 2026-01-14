@@ -1,3 +1,5 @@
+![IMG_9175](https://github.com/use![IMG_9175](https://github.com/user-attachments/assets/8d88a51e-d974-434e-9f90-aab139092850)
+r-attachments/assets/892ea506-7750-4b89-a9f0-1612ddc7cc3b)
 # My Structure - Student 20
 
 ## What I See in My Data
